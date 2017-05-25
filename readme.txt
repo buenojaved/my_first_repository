@@ -1,3 +1,3 @@
 Awesome work guys!!!
 
-Need to learn GIT, GITHub really fast.
+Need to learn GIT, GITHub really quickly.
